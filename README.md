@@ -1,0 +1,2 @@
+# Xiamen_Huaxia_University_May.20.2026_Event_Data
+厦门华厦学院2026年05月20日事件聊天记录材料归档
